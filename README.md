@@ -1,4 +1,4 @@
-### Hi there 📩 ᵎ 
+### Hi There 📩 
 ## I'm Lena C.A., a 15 Year-Old Forensics, Cyber-Security, and Python Development Enthusiast.
 
 
