@@ -1,4 +1,4 @@
-### Hi there ꒱ 📩 
+### Hi there ꒱ ; 📩 
 ## I'm Lena C.A., a 15 Year-Old Forensics, Cyber-Security, and Python Development Enthusiast.
 
 
@@ -8,6 +8,4 @@
 
 ୨୧ 📮 How to reach me: crayon#0024
 
- ༘ 🖥 Learning how to improve in CyberSecurity.
- 
-### 2021 CyberStart Semi-Finalist & Icewahl's Save Sara Challenge Winner.
+ ༘ 2021 CyberStart Semi-Finalist & Icewahl's Save Sara Challenge Winner.
