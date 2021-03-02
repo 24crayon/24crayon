@@ -2,9 +2,9 @@
 
 
 
-⌢ 💬 Ask me questions regarding Forensics challenges!
+⌢ 📮 Ask me questions regarding Forensics challenges!
 
-📮 How to reach me: crayon#0024
+How to reach me: crayon#0024
 
 ⌢ 🔭 I’m currently brainstorming for projects to work on during the summer.
 
