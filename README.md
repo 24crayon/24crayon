@@ -4,10 +4,10 @@
 
 ⊹₊ 🔭 I’m currently brainstorming for projects to work on during the summer.
 
-⌢ 💬 Ask me questions regarding Forensics challenges ! ᵎ
+⌢ 💬 Ask me questions regarding Forensics challenges !ᵎ
 
 ୨୧ 📮 How to reach me: crayon#0024
 
- ༘ 🖥 Learning how to improve in CyberSecurity..
+ ༘ 🖥 Learning how to improve in CyberSecurity.
  
 2021 CyberStart Semi-Finalist & Icewahl's Save Sara Challenge Winner 
