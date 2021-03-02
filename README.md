@@ -1,8 +1,6 @@
 ### Hi there
 ### I'm Lena C.A., a 15 year-old Forensics, Cyber-Security, and Python Development enthusiast.
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently brainstorming for projects to work on during the summer.
 - 💬 Ask me questions regarding Forensics challenges.
 - 📫 How to reach me: crayon#0024.
