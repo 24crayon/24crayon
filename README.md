@@ -2,7 +2,7 @@
 
 
 
-⌢ Ask me questions regarding Forensics challenges!
+⌢ Ask me questions regarding Forensics challenges.
 
 How to reach me: crayon#0024
 
