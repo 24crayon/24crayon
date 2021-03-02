@@ -8,4 +8,4 @@
 
 ୨୧ 📮 How to reach me: crayon#0024
 
- ༘ 2021 CyberStart Semi-Finalist & Icewahl's Save Sara Challenge Winner.
+2021 CyberStart Semi-Finalist & Icewahl's Save Sara Challenge Winner.
