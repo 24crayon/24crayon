@@ -6,6 +6,6 @@
 
 📮 How to reach me: crayon#0024
 
-🔭 I’m currently brainstorming for projects to work on during the summer.
+⌢ 🔭 I’m currently brainstorming for projects to work on during the summer.
 
 2021 CyberStart Semi-Finalist & Icewahl's Save Sara Challenge Winner.
