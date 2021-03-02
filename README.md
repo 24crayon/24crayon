@@ -4,7 +4,7 @@
 
 ⊹₊ 🔭 I’m currently brainstorming for projects to work on during the summer.
 
-⌢ 💬 Ask me questions regarding Forensics challenges !ᵎ
+⌢ 💬 Ask me questions regarding Forensics challengesᵎ
 
 ୨୧ 📮 How to reach me: crayon#0024
 
